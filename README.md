@@ -1,5 +1,10 @@
 # Index
 https://x.com/Amank1412/status/2029825852209516869
+https://x.com/JulianGoldieSEO/status/2029859541911835107
+https://x.com/JoshKale/status/2030116466104643633
+https://x.com/HuggingModels/status/2030050656975999103
+https://x.com/mdancho84/status/2029894312469602668
+
 https://x.com/JulianGoldieSEO/status/2029844170219851816
 https://x.com/RoundtableSpace/status/2029984103676756140
 https://x.com/abxxai/status/2029560600070881577
@@ -34,3 +39,5 @@ https://x.com/simplifyinAI/status/2030012329480618313
 https://x.com/Ronycoder/status/2029852005515284613
 https://x.com/cryptowalax/status/2029854830496485623
 https://x.com/Ric_RTP/status/2029907593376706621
+https://x.com/Ric_RTP/status/2029907593376706621
+https://x.com/JafarNajafov/status/2029835676578107772
