@@ -11,8 +11,16 @@ https://x.com/TechByMarkandey/status/2029917052774092905
 https://x.com/primemans/status/2030163333790453908
 https://x.com/sukhdeep7896/status/2030201003677810965
 https://x.com/NainsiDwiv50980/status/2029964208574435428
+https://x.com/grundstromleo/status/2030010009388732519
+
+# University.
+https://x.com/RodmanAi/status/2030173755809616260
+
+# Paper:
+https://x.com/rohanpaul_ai/status/2030164251369951545
 
 # Index
+https://x.com/jessieclipping/status/2030039666162913324?s=20
 https://x.com/NainsiDwiv50980/status/2029951178260324840
 https://x.com/alifcoder/status/2030258772145533094
 https://x.com/_vmlops/status/2030133261582880905
