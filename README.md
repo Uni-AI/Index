@@ -13,6 +13,8 @@ https://x.com/primemans/status/2030163333790453908
 https://x.com/sukhdeep7896/status/2030201003677810965
 https://x.com/NainsiDwiv50980/status/2029964208574435428
 https://x.com/grundstromleo/status/2030010009388732519
+https://x.com/jessieclipping/status/2029681955256816092
+https://x.com/jessieclipping/status/2029287435981701204
 
 # University.
 https://x.com/RodmanAi/status/2030173755809616260
@@ -26,6 +28,7 @@ https://x.com/NainsiDwiv50980/status/2029951178260324840
 https://x.com/alifcoder/status/2030258772145533094
 https://x.com/_vmlops/status/2030133261582880905
 https://x.com/aiwithmayank/status/2030207757723619485
+https://x.com/jessieclipping/status/2030039666162913324
 https://x.com/HamptonAc_/status/2030263349343142002
 https://x.com/JulianGoldieSEO/status/2029972229447110955?s=20
 https://x.com/RoundtableSpace/status/2030021852983161201
