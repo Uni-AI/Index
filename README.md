@@ -6,7 +6,12 @@ https://x.com/HuggingModels/status/2030050656975999103
 https://x.com/mdancho84/status/2029894312469602668
 https://x.com/Newsforce/status/2030055830771380411
 https://x.com/sukh_saroy/status/2029863037029781664
-
+https://x.com/_vmlops/status/2029941075817943132
+https://x.com/RodmanAi/status/2029875318035779771
+https://x.com/simplifyinAI/status/2030012329480618313
+https://x.com/Ronycoder/status/2029852005515284613
+https://x.com/openfangg/status/2029637900204171457
+https://x.com/codewithimanshu/status/2030079767140323632
 https://x.com/JulianGoldieSEO/status/2029844170219851816
 https://x.com/RoundtableSpace/status/2029984103676756140
 https://x.com/abxxai/status/2029560600070881577
