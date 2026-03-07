@@ -11,6 +11,7 @@ https://x.com/Meer_AIIT/status/2030082245650973085 https://x.com/nikola_mr64990/
 https://x.com/HeyAbhishek/status/2030148687985529205
 https://x.com/abxxai/status/2029954392355655720
 https://x.com/Ric_RTP/status/2029907593376706621
+https://x.com/JulianGoldieSEO/status/2029859541911835107
 https://x.com/heyshrutimishra/status/2029966317873418714
 https://x.com/JulianGoldieSEO/status/2029844446440022160
 https://x.com/abxxai/status/2029954392355655720
@@ -20,4 +21,14 @@ https://x.com/xmayeth/status/2029943091528950248
 https://x.com/abxxai/status/2029560600070881577
 https://x.com/sukhdeep7896/status/2029961543568478506
 https://x.com/JafarNajafov/status/2029835676578107772
-
+https://x.com/JulianGoldieSEO/status/2029859541911835107
+https://x.com/JoshKale/status/2030116466104643633
+https://x.com/HuggingModels/status/2030050656975999103
+https://x.com/mdancho84/status/2029894312469602668
+https://x.com/Newsforce/status/2030055830771380411
+https://x.com/sukh_saroy/status/2029863037029781664
+https://x.com/_vmlops/status/2029941075817943132
+https://x.com/_vmlops/status/2029941075817943132
+https://x.com/RodmanAi/status/2029875318035779771
+https://x.com/simplifyinAI/status/2030012329480618313
+https://x.com/Ronycoder/status/2029852005515284613
