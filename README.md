@@ -32,3 +32,5 @@ https://x.com/_vmlops/status/2029941075817943132
 https://x.com/RodmanAi/status/2029875318035779771
 https://x.com/simplifyinAI/status/2030012329480618313
 https://x.com/Ronycoder/status/2029852005515284613
+https://x.com/cryptowalax/status/2029854830496485623
+https://x.com/Ric_RTP/status/2029907593376706621
