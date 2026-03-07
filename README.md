@@ -8,6 +8,7 @@ https://x.com/MillieMarconnni/status/2030206607616053701
 https://x.com/TechByMarkandey/status/2029917052774092905
 
 # Photon
+https://x.com/jessieclipping/status/2022745577608380794
 https://x.com/primemans/status/2030163333790453908
 https://x.com/sukhdeep7896/status/2030201003677810965
 https://x.com/NainsiDwiv50980/status/2029964208574435428
