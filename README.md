@@ -48,3 +48,9 @@ https://x.com/cryptowalax/status/2029854830496485623
 https://x.com/Ric_RTP/status/2029907593376706621
 https://x.com/Ric_RTP/status/2029907593376706621
 https://x.com/JafarNajafov/status/2029835676578107772
+https://x.com/JulianGoldieSEO/status/2030147306146951542
+https://x.com/RodmanAi/status/2030170891712397413
+https://x.com/Shruti_0810/status/2030154254116438046
+https://x.com/s_mohinii/status/2029936159128965191?s=20
+https://x.com/heyrimsha/status/2029874602621686154?s=20
+https://x.com/AndrewBolis/status/2029893529460507052?s=20
