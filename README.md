@@ -1,5 +1,7 @@
 # Index
 https://x.com/_vmlops/status/2030133261582880905
+https://x.com/JulianGoldieSEO/status/2029935038989496687
+https://x.com/sukh_saroy/status/2030200721375957396
 https://x.com/Zephyr_hg/status/2029829419146117217
 https://x.com/Whizz_ai/status/2030168158288629873
 https://x.com/Amank1412/status/2029825852209516869
