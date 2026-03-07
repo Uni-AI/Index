@@ -1,5 +1,13 @@
 # Index
+https://x.com/_vmlops/status/2030133261582880905
 https://x.com/Amank1412/status/2029825852209516869
+https://x.com/simplifyinAI/status/2029873318904406440
+https://x.com/mhdfaran/status/2029992219449704697
+https://x.com/Eng_china5/status/2029994655115596147
+https://x.com/KanikaBK/status/2029881484555997267
+https://x.com/ihtesham2005/status/2029877033489289597
+https://x.com/Zephyr_hg/status/2029857716626235650
+https://x.com/HeyAbhishek/status/2029925721154769218
 https://x.com/JulianGoldieSEO/status/2029859541911835107
 https://x.com/JoshKale/status/2030116466104643633
 https://x.com/HuggingModels/status/2030050656975999103
