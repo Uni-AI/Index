@@ -16,3 +16,5 @@ https://x.com/abxxai/status/2029954392355655720
 https://x.com/abxxai/status/2029954392355655720
 https://x.com/HeyAbhishek/status/2030148687985529205
 https://x.com/xmayeth/status/2029943091528950248
+https://x.com/abxxai/status/2029560600070881577
+https://x.com/sukhdeep7896/status/2029961543568478506
