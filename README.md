@@ -1,5 +1,9 @@
 # Index
 https://x.com/_vmlops/status/2030133261582880905
+https://x.com/aiwithmayank/status/2030207757723619485
+https://x.com/JulianGoldieSEO/status/2030101128310927595
+https://x.com/thisguyknowsai/status/2030226552815034703
+
 https://x.com/MisbahSy/status/2030113385019494524
 https://x.com/_vmlops/status/2030241988851925428
 https://x.com/NoahEpstein_/status/2030260897088725464
