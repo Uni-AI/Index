@@ -1,5 +1,8 @@
 # AvaAI.IDE
 https://x.com/Shruti_0810/status/2030020014812905624
+https://x.com/smratitiwa86867/status/2030141107791691806
+https://x.com/MillieMarconnni/status/2030206607616053701
+
 
 # WikiPublish
 https://x.com/TechByMarkandey/status/2029917052774092905
@@ -7,6 +10,7 @@ https://x.com/TechByMarkandey/status/2029917052774092905
 # Photon
 https://x.com/primemans/status/2030163333790453908
 https://x.com/sukhdeep7896/status/2030201003677810965
+https://x.com/NainsiDwiv50980/status/2029964208574435428
 
 # Index
 https://x.com/NainsiDwiv50980/status/2029951178260324840
@@ -14,6 +18,8 @@ https://x.com/alifcoder/status/2030258772145533094
 https://x.com/_vmlops/status/2030133261582880905
 https://x.com/aiwithmayank/status/2030207757723619485
 https://x.com/HamptonAc_/status/2030263349343142002
+https://x.com/JulianGoldieSEO/status/2029972229447110955?s=20
+https://x.com/RoundtableSpace/status/2030021852983161201
 https://x.com/dashboardlim/status/2030267296929771857?s=20
 https://x.com/cryptopunk7213/status/2029699441226129479?s=20
 https://x.com/JulianGoldieSEO/status/2030101128310927595
