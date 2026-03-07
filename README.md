@@ -1,6 +1,7 @@
 # Index
 https://x.com/_vmlops/status/2030133261582880905
 https://x.com/Zephyr_hg/status/2029829419146117217
+https://x.com/Whizz_ai/status/2030168158288629873
 https://x.com/Amank1412/status/2029825852209516869
 https://x.com/simplifyinAI/status/2029873318904406440
 https://x.com/mhdfaran/status/2029992219449704697
