@@ -4,6 +4,8 @@ https://x.com/JulianGoldieSEO/status/2029859541911835107
 https://x.com/JoshKale/status/2030116466104643633
 https://x.com/HuggingModels/status/2030050656975999103
 https://x.com/mdancho84/status/2029894312469602668
+https://x.com/Newsforce/status/2030055830771380411
+https://x.com/sukh_saroy/status/2029863037029781664
 
 https://x.com/JulianGoldieSEO/status/2029844170219851816
 https://x.com/RoundtableSpace/status/2029984103676756140
