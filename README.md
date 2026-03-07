@@ -30,6 +30,7 @@ https://x.com/JulianGoldieSEO/status/2029972229447110955?s=20
 https://x.com/RoundtableSpace/status/2030021852983161201
 https://x.com/dashboardlim/status/2030267296929771857?s=20
 https://x.com/cryptopunk7213/status/2029699441226129479?s=20
+https://x.com/Shruti_0810/status/2030169497282433223?s=20
 https://x.com/JulianGoldieSEO/status/2030101128310927595
 https://x.com/thisguyknowsai/status/2030226552815034703
 https://x.com/iruletheworldmo/status/2029873658009714727
