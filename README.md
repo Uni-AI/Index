@@ -27,10 +27,12 @@ https://x.com/RodmanAi/status/2030213144497545455
 
 # Paper:
 https://x.com/rohanpaul_ai/status/2030164251369951545
+https://x.com/socialwithaayan/status/2030662911354617922
 
 # Free APIs
 https://x.com/s_mohinii/status/2030435122571628725
 https://x.com/hey_andersonnn/status/2030682208776941965
+
 
 # Index
 https://x.com/JulianGoldieSEO/status/2030376624341061713
