@@ -2,6 +2,7 @@
 https://x.com/Shruti_0810/status/2030020014812905624
 https://x.com/smratitiwa86867/status/2030141107791691806
 https://x.com/MillieMarconnni/status/2030206607616053701
+https://x.com/avthar/status/2030421063163641913
 
 # Local A.I.
 ## Perplexica
@@ -43,6 +44,7 @@ https://x.com/hey_andersonnn/status/2030682208776941965
 
 
 # Index
+https://x.com/Anabiya_live/status/2030566098639413721
 https://x.com/JulianGoldieSEO/status/2030403058426118580
 https://x.com/dr_cintas/status/2030699336078655959
 https://x.com/IamKyros69/status/2030697394430792103
