@@ -3,6 +3,11 @@ https://x.com/Shruti_0810/status/2030020014812905624
 https://x.com/smratitiwa86867/status/2030141107791691806
 https://x.com/MillieMarconnni/status/2030206607616053701
 
+# Local A.I.
+## Perplexica
+https://x.com/Trisha_Techie/status/2030592833468641753
+https://github.com/ItzCrazyKns/Perplexica
+
 
 # WikiPublish
 https://x.com/TechByMarkandey/status/2029917052774092905
@@ -35,6 +40,7 @@ https://x.com/hey_andersonnn/status/2030682208776941965
 
 
 # Index
+https://x.com/IamKyros69/status/2030697394430792103
 https://x.com/RoundtableSpace/status/2030376690375950426
 https://x.com/JulianGoldieSEO/status/2030376624341061713
 https://x.com/AndrewBolis/status/2030603204002799680
