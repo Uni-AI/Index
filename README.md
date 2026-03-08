@@ -43,6 +43,7 @@ https://x.com/hey_andersonnn/status/2030682208776941965
 
 
 # Index
+https://x.com/JulianGoldieSEO/status/2030403058426118580
 https://x.com/dr_cintas/status/2030699336078655959
 https://x.com/IamKyros69/status/2030697394430792103
 https://x.com/RoundtableSpace/status/2030376690375950426
