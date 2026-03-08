@@ -13,6 +13,7 @@ https://github.com/ItzCrazyKns/Perplexica
 https://x.com/TechByMarkandey/status/2029917052774092905
 
 # Photon
+https://x.com/grundstromleo/status/2030720047744995500
 https://x.com/Ytautomation6/status/2030595001575514217
 https://x.com/Jubayer7792821/status/2030655595842507001
 https://x.com/Ronycoder/status/2030276883657658751
