@@ -3,6 +3,7 @@ https://x.com/Shruti_0810/status/2030020014812905624
 https://x.com/smratitiwa86867/status/2030141107791691806
 https://x.com/MillieMarconnni/status/2030206607616053701
 https://x.com/avthar/status/2030421063163641913
+https://x.com/hasantoxr/status/2030734795110858815
 
 # Local A.I.
 ## Perplexica
@@ -47,8 +48,13 @@ https://x.com/hey_andersonnn/status/2030682208776941965
 
 # ManticoreSecurity
 https://x.com/CyberRacheal/status/2030553750037729666
+https://x.com/Dinosn/status/2030344419082187242
 
 # Index
+https://x.com/JulianGoldieSEO/status/2030561318328271284
+https://x.com/AndrewBolis/status/2030648504247542009
+https://x.com/r0ck3t23/status/2030778471559942653
+https://x.com/RodmanAi/status/2030533725554094145
 https://x.com/alifcoder/status/2030493801241100349
 https://x.com/JulianGoldieSEO/status/2030702222905057659
 https://x.com/Suryanshti777/status/2030754860183019802
