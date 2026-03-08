@@ -13,6 +13,8 @@ https://github.com/ItzCrazyKns/Perplexica
 https://x.com/TechByMarkandey/status/2029917052774092905
 
 # Photon
+https://x.com/Ytautomation6/status/2030595001575514217
+https://x.com/Jubayer7792821/status/2030655595842507001
 https://x.com/Ronycoder/status/2030276883657658751
 https://x.com/grundstromleo/status/2030062909649285395
 https://x.com/riyazz_ai/status/2030214796466061409
@@ -40,6 +42,7 @@ https://x.com/hey_andersonnn/status/2030682208776941965
 
 
 # Index
+https://x.com/dr_cintas/status/2030699336078655959
 https://x.com/IamKyros69/status/2030697394430792103
 https://x.com/RoundtableSpace/status/2030376690375950426
 https://x.com/JulianGoldieSEO/status/2030376624341061713
