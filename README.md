@@ -45,8 +45,16 @@ https://x.com/socialwithaayan/status/2030662911354617922
 https://x.com/s_mohinii/status/2030435122571628725
 https://x.com/hey_andersonnn/status/2030682208776941965
 
+# ManticoreSecurity
+https://x.com/CyberRacheal/status/2030553750037729666
 
 # Index
+https://x.com/alifcoder/status/2030493801241100349
+https://x.com/JulianGoldieSEO/status/2030702222905057659
+https://x.com/Suryanshti777/status/2030754860183019802
+https://x.com/coreyganim/status/2030597899831144449
+https://x.com/AdarshChetan/status/2030637184685146155
+https://x.com/FluentInFinance/status/2030719144459637168
 https://x.com/rohanpaul_ai/status/2030768874560614711
 https://x.com/Hey_Aivetra/status/2030707109952922067
 https://x.com/Anabiya_live/status/2030566098639413721
