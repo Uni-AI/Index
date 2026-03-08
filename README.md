@@ -9,6 +9,9 @@ https://x.com/avthar/status/2030421063163641913
 https://x.com/Trisha_Techie/status/2030592833468641753
 https://github.com/ItzCrazyKns/Perplexica
 
+#*Claw
+https://x.com/JulianGoldieSEO/status/2030585327392579711
+
 
 # WikiPublish
 https://x.com/TechByMarkandey/status/2029917052774092905
