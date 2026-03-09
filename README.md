@@ -45,6 +45,7 @@ https://x.com/jessieclipping/status/2029287435981701204
 https://x.com/grundstromleo/status/2030062909649285395
 
 # University.
+https://x.com/RodmanAi/status/2030734363957330194
 https://x.com/JulianGoldieSEO/status/2030937283944485119
 https://github.com/Developer-Y/cs-video-courses
 https://x.com/hey_andersonnn/status/2031035734350803099
