@@ -28,6 +28,7 @@ https://agent.minimax.io/max-claw
 https://x.com/TechByMarkandey/status/2029917052774092905
 
 # Photon
+https://x.com/creatorslop/status/2030992285689860291
 https://x.com/grundstromleo/status/2030720047744995500
 https://x.com/Ytautomation6/status/2030595001575514217
 https://x.com/Jubayer7792821/status/2030655595842507001
@@ -75,7 +76,22 @@ https://x.com/_vmlops/status/2031027610327859660?s=20
 ## DevOps
 https://x.com/sukh_saroy/status/2030673725365125163
 
+# UnicornFund
+https://x.com/heynavtoor/status/2030967023627563256
+
+# WebBuilderAI
+https://x.com/ihtesham2005/status/2031018944455463135
+
 # Index
+https://x.com/Ronycoder/status/2031001655781859649
+https://x.com/DivyanshT91162/status/2031059397368217850
+https://x.com/crystalsssup/status/2030884135158616186
+https://x.com/jason_coder0/status/2030889251215409330
+https://x.com/DAIEvolutionHub/status/2030979189906534800
+https://x.com/GithubProjects/status/2030919391928574308
+https://x.com/heygurisingh/status/2030631952404131939
+https://x.com/aiwithmayank/status/2030950359330705682
+https://x.com/dr_cintas/status/2031078313473503562
 https://x.com/JulianGoldieSEO/status/2030957133815251302
 https://x.com/RoundtableSpace/status/2031033518906810842
 https://x.com/KanikaBK/status/2030930347110908172
