@@ -37,8 +37,10 @@ https://x.com/grundstromleo/status/2030062909649285395
 # University.
 https://x.com/RodmanAi/status/2030173755809616260
 https://x.com/RodmanAi/status/2030213144497545455
+https://x.com/alifcoder/status/2030684458404446289
 
 # Paper:
+https://x.com/godofprompt/status/2030472665035641075
 https://x.com/rohanpaul_ai/status/2030164251369951545
 https://x.com/socialwithaayan/status/2030662911354617922
 
@@ -51,6 +53,8 @@ https://x.com/CyberRacheal/status/2030553750037729666
 https://x.com/Dinosn/status/2030344419082187242
 
 # Index
+https://x.com/s_mohinii/status/2030714112418943116
+https://x.com/RodmanAi/status/2030734560556953881
 https://x.com/JulianGoldieSEO/status/2030561318328271284
 https://x.com/AndrewBolis/status/2030648504247542009
 https://x.com/r0ck3t23/status/2030778471559942653
