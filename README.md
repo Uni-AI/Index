@@ -69,6 +69,8 @@ https://x.com/rubenhassid/status/2030667540389634534
 https://x.com/_vmlops/status/2031027610327859660?s=20
 
 # Index
+https://x.com/JulianGoldieSEO/status/2031001100938289207?s=20
+https://x.com/hasantoxr/status/2031039497732014558
 https://x.com/BharukaShraddha/status/2030965172207317388?s=20
 https://x.com/HeyZoyaKhan/status/2031013112862912979?s=20
 https://x.com/JulianGoldieSEO/status/2030867782427119826?s=20
