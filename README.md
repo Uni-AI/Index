@@ -16,9 +16,13 @@ https://x.com/heynavtoor/status/2030904551424074107
 https://x.com/Trisha_Techie/status/2030592833468641753
 https://github.com/ItzCrazyKns/Perplexica
 
-#*Claw
+## *Claw
 https://x.com/JulianGoldieSEO/status/2030585327392579711
 
+### MaxClaw
+https://x.com/godofprompt/status/2031058834316292399
+https://agent.minimax.io/
+https://agent.minimax.io/max-claw
 
 # WikiPublish
 https://x.com/TechByMarkandey/status/2029917052774092905
@@ -38,7 +42,6 @@ https://x.com/grundstromleo/status/2030010009388732519
 https://x.com/jessieclipping/status/2029681955256816092
 https://x.com/jessieclipping/status/2029287435981701204
 https://x.com/grundstromleo/status/2030062909649285395
-
 
 # University.
 https://github.com/Developer-Y/cs-video-courses
@@ -69,6 +72,7 @@ https://x.com/rubenhassid/status/2030667540389634534
 https://x.com/_vmlops/status/2031027610327859660?s=20
 
 # Index
+https://x.com/JulianGoldieSEO/status/2030935827120017482
 https://x.com/JulianGoldieSEO/status/2031001100938289207?s=20
 https://x.com/hasantoxr/status/2031039497732014558
 https://x.com/BharukaShraddha/status/2030965172207317388?s=20
