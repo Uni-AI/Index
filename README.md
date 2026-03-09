@@ -45,6 +45,7 @@ https://x.com/jessieclipping/status/2029287435981701204
 https://x.com/grundstromleo/status/2030062909649285395
 
 # University.
+https://x.com/JulianGoldieSEO/status/2030937283944485119
 https://github.com/Developer-Y/cs-video-courses
 https://x.com/hey_andersonnn/status/2031035734350803099
 https://x.com/hey_andersonnn/status/2031035734350803099?s=20
@@ -84,6 +85,7 @@ https://x.com/heynavtoor/status/2030967023627563256
 https://x.com/ihtesham2005/status/2031018944455463135
 
 # Index
+https://x.com/s_mohinii/status/2030816020949254593
 https://x.com/Ronycoder/status/2031001655781859649
 https://x.com/DivyanshT91162/status/2031059397368217850
 https://x.com/crystalsssup/status/2030884135158616186
