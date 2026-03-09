@@ -6,6 +6,9 @@ https://x.com/avthar/status/2030421063163641913
 https://x.com/hasantoxr/status/2030734795110858815
 
 # Local A.I.
+https://x.com/simplifyinAI/status/2030963191753138491
+https://x.com/simplifyinAI/status/2030963191753138491
+
 ## DeerFlow by ByteDance
 https://x.com/heynavtoor/status/2030904551424074107
 
@@ -38,9 +41,13 @@ https://x.com/grundstromleo/status/2030062909649285395
 
 
 # University.
+https://github.com/Developer-Y/cs-video-courses
+https://x.com/hey_andersonnn/status/2031035734350803099
+https://x.com/hey_andersonnn/status/2031035734350803099?s=20
 https://x.com/RodmanAi/status/2030173755809616260
 https://x.com/RodmanAi/status/2030213144497545455
 https://x.com/alifcoder/status/2030684458404446289
+https://x.com/JulianGoldieSEO/status/2030932157309599913
 
 # Paper:
 https://x.com/godofprompt/status/2030472665035641075
@@ -48,7 +55,7 @@ https://x.com/rohanpaul_ai/status/2030164251369951545
 https://x.com/socialwithaayan/status/2030662911354617922
 
 # Free APIs
-https://x.com/s_mohinii/status/2030435122571628725
+https://x.com/s_mohinii/status/203022571628725
 https://x.com/hey_andersonnn/status/2030682208776941965
 
 # ManticoreSecurity
@@ -59,6 +66,9 @@ https://x.com/Dinosn/status/2030344419082187242
 https://x.com/rubenhassid/status/2030667540389634534
 
 # Index
+https://x.com/JulianGoldieSEO/status/2030932157309599913
+https://x.com/JulianGoldieSEO/status/2030932157309599913
+
 https://x.com/JulianGoldieSEO/status/2030993552935932077
 https://x.com/RoundtableSpace/status/2030642350763205102
 https://x.com/JulianGoldieSEO/status/2030958575686660211
