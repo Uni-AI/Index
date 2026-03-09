@@ -53,6 +53,8 @@ https://x.com/CyberRacheal/status/2030553750037729666
 https://x.com/Dinosn/status/2030344419082187242
 
 # Index
+https://x.com/RoundtableSpace/status/2030642350763205102
+https://x.com/JulianGoldieSEO/status/2030958575686660211
 https://x.com/s_mohinii/status/2030806243653431791
 https://x.com/s_mohinii/status/2030714112418943116
 https://x.com/RodmanAi/status/2030734560556953881
