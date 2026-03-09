@@ -75,6 +75,7 @@ https://x.com/_vmlops/status/2031027610327859660?s=20
 # UniCloud
 ## DevOps
 https://x.com/sukh_saroy/status/2030673725365125163
+https://github.com/pixlcore/xyops
 
 # UnicornFund
 https://x.com/heynavtoor/status/2030967023627563256
