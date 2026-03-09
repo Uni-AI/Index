@@ -6,6 +6,9 @@ https://x.com/avthar/status/2030421063163641913
 https://x.com/hasantoxr/status/2030734795110858815
 
 # Local A.I.
+## DeerFlow by ByteDance
+https://x.com/heynavtoor/status/2030904551424074107
+
 ## Perplexica
 https://x.com/Trisha_Techie/status/2030592833468641753
 https://github.com/ItzCrazyKns/Perplexica
@@ -52,7 +55,11 @@ https://x.com/hey_andersonnn/status/2030682208776941965
 https://x.com/CyberRacheal/status/2030553750037729666
 https://x.com/Dinosn/status/2030344419082187242
 
+# Prompt Engineering
+https://x.com/rubenhassid/status/2030667540389634534
+
 # Index
+https://x.com/JulianGoldieSEO/status/2030993552935932077
 https://x.com/RoundtableSpace/status/2030642350763205102
 https://x.com/JulianGoldieSEO/status/2030958575686660211
 https://x.com/s_mohinii/status/2030806243653431791
