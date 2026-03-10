@@ -4,6 +4,7 @@ https://x.com/smratitiwa86867/status/2030141107791691806
 https://x.com/MillieMarconnni/status/2030206607616053701
 https://x.com/avthar/status/2030421063163641913
 https://x.com/hasantoxr/status/2030734795110858815
+https://x.com/KanikaBK/status/2031089658499838168?s=20
 
 # Local A.I.
 https://x.com/simplifyinAI/status/2030963191753138491
@@ -28,6 +29,8 @@ https://agent.minimax.io/max-claw
 https://x.com/TechByMarkandey/status/2029917052774092905
 
 # Photon
+https://x.com/Shruti_0810/status/2031223602687918563?s=20
+
 https://x.com/creatorslop/status/2030992285689860291
 https://x.com/grundstromleo/status/2030720047744995500
 https://x.com/Ytautomation6/status/2030595001575514217
@@ -87,6 +90,7 @@ https://x.com/heynavtoor/status/2030967023627563256
 
 # WebBuilderAI
 https://x.com/ihtesham2005/status/2031018944455463135
+https://x.com/simplifyinAI/status/2031050007957184934?s=20
 
 # Index
 https://x.com/rohanpaul_ai/status/2031244214886158454?s=20
@@ -97,7 +101,7 @@ https://x.com/manishkumar_dev/status/2031245370316186094?s=20
 https://x.com/alifcoder/status/2030950761774174485?s=20
 https://x.com/hasantoxr/status/2031130859940753586?s=20
 https://x.com/rohanpaul_ai/status/2031227437837857081?s=20
-
+https://x.com/RodmanAi/status/2031076464691654738?s=20
 https://x.com/heyshrutimishra/status/2031194479286431794
 https://x.com/alifcoder/status/2031014507712311789
 https://x.com/s_mohinii/status/2030816020949254593
