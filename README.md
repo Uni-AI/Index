@@ -1,4 +1,5 @@
 # AvaAI.IDE
+https://x.com/rohanpaul_ai/status/2031403407182119318
 https://x.com/Shruti_0810/status/2030020014812905624
 https://x.com/smratitiwa86867/status/2030141107791691806
 https://x.com/MillieMarconnni/status/2030206607616053701
@@ -93,6 +94,19 @@ https://x.com/ihtesham2005/status/2031018944455463135
 https://x.com/simplifyinAI/status/2031050007957184934?s=20
 
 # Index
+https://x.com/JulianGoldieSEO/status/2031104613596934472?s=20
+https://x.com/Whizz_ai/status/2031268552897081610?s=20
+https://x.com/Hey_Aivetra/status/2031423502620963034?s=20
+https://x.com/s_mohinii/status/2031307059157938463?s=20
+https://x.com/Ejaz_bashir1/status/2031247784654110984?s=20
+https://x.com/hasantoxr/status/2031425579325731243?s=20
+https://x.com/coreyganim/status/2031317870102127005?s=20
+https://x.com/AndrewBolis/status/2031328002114727967?s=20
+https://x.com/Suryanshti777/status/2031370405500551207?s=20
+https://x.com/rubenhassid/status/2031404186185720010?s=20
+https://x.com/akshay_pachaar/status/2031352702152974788?s=20
+https://x.com/ihtesham2005/status/2031281302461382988?s=20
+https://x.com/aiwithjainam/status/2031348549884195138?s=20
 https://x.com/rohanpaul_ai/status/2031244214886158454?s=20
 https://x.com/JulianGoldieSEO/status/2031062969988333906?s=20
 https://x.com/s_mohinii/status/2031210615994462456?s=20
