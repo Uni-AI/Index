@@ -86,6 +86,8 @@ https://x.com/heynavtoor/status/2030967023627563256
 https://x.com/ihtesham2005/status/2031018944455463135
 
 # Index
+https://x.com/heyshrutimishra/status/2031194479286431794
+https://x.com/alifcoder/status/2031014507712311789
 https://x.com/s_mohinii/status/2030816020949254593
 https://x.com/Ronycoder/status/2031001655781859649
 https://x.com/DivyanshT91162/status/2031059397368217850
