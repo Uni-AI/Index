@@ -74,6 +74,9 @@ https://x.com/rubenhassid/status/2030667540389634534
 # Symbiotic.UniGrapg
 https://x.com/_vmlops/status/2031027610327859660?s=20
 
+# Replicant
+https://x.com/_vmlops/status/2030989632444477656?s=20
+
 # UniCloud
 ## DevOps
 https://x.com/sukh_saroy/status/2030673725365125163
@@ -86,6 +89,15 @@ https://x.com/heynavtoor/status/2030967023627563256
 https://x.com/ihtesham2005/status/2031018944455463135
 
 # Index
+https://x.com/rohanpaul_ai/status/2031244214886158454?s=20
+https://x.com/JulianGoldieSEO/status/2031062969988333906?s=20
+https://x.com/s_mohinii/status/2031210615994462456?s=20
+https://x.com/Suryanshti777/status/2031222348385509584?s=20
+https://x.com/manishkumar_dev/status/2031245370316186094?s=20
+https://x.com/alifcoder/status/2030950761774174485?s=20
+https://x.com/hasantoxr/status/2031130859940753586?s=20
+https://x.com/rohanpaul_ai/status/2031227437837857081?s=20
+
 https://x.com/heyshrutimishra/status/2031194479286431794
 https://x.com/alifcoder/status/2031014507712311789
 https://x.com/s_mohinii/status/2030816020949254593
