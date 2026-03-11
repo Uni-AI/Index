@@ -94,6 +94,7 @@ https://x.com/ihtesham2005/status/2031018944455463135
 https://x.com/simplifyinAI/status/2031050007957184934?s=20
 
 # Index
+https://x.com/rohanpaul_ai/status/2031547136828125635?s=20
 https://x.com/JulianGoldieSEO/status/2031104613596934472?s=20
 https://x.com/Whizz_ai/status/2031268552897081610?s=20
 https://x.com/Hey_Aivetra/status/2031423502620963034?s=20
