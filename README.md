@@ -49,6 +49,8 @@ https://x.com/jessieclipping/status/2029287435981701204
 https://x.com/grundstromleo/status/2030062909649285395
 
 # University.
+https://x.com/TheAIColony/status/2031395704770334792?s=20
+https://x.com/s_mohinii/status/2031627652680003880?s=20
 https://x.com/RodmanAi/status/2030734363957330194
 https://x.com/JulianGoldieSEO/status/2030937283944485119
 https://github.com/Developer-Y/cs-video-courses
@@ -94,6 +96,18 @@ https://x.com/ihtesham2005/status/2031018944455463135
 https://x.com/simplifyinAI/status/2031050007957184934?s=20
 
 # Index
+https://x.com/abxxai/status/2031408810653520087?s=20
+https://x.com/Rixhabh__/status/2031618756242501774?s=20
+https://x.com/aiwithjainam/status/2031282913422225567?s=20
+https://x.com/heygurisingh/status/2031287290614743215?s=20
+https://x.com/DivyanshT91162/status/2031615748838441098?s=20
+https://x.com/JulianGoldieSEO/status/2031545326461661674?s=20
+https://x.com/socialwithaayan/status/2031392465866162392?s=20
+https://x.com/rohanpaul_ai/status/2031534443958251745?s=20
+https://x.com/sukh_saroy/status/2031287484055990497?s=20
+https://x.com/Parul_Gautam7/status/2031377064360890718?s=20
+https://x.com/oliviscusAI/status/2031415996553244898?s=20
+
 https://x.com/Suryanshti777/status/2031612863442465190?s=20
 https://x.com/Suryanshti777/status/2031612863442465190?s=20
 https://x.com/JulianGoldieSEO/status/2031626176095985756?s=20
