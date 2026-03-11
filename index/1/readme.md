@@ -1,3 +1,4 @@
+https://x.com/JulianGoldieSEO/status/2031793024481837546?s=20
 https://x.com/alifcoder/status/2031740200918127082?s=20
 https://x.com/AndrewBolis/status/2031690384464924808
 https://x.com/socialwithaayan/status/2031669480297034158
