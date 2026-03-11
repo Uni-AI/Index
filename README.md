@@ -96,6 +96,8 @@ https://x.com/ihtesham2005/status/2031018944455463135
 https://x.com/simplifyinAI/status/2031050007957184934?s=20
 
 # Index
+https://x.com/Vinay_bharambe/status/2031629140638482526?s=20
+https://x.com/HeyAbhishek/status/2031378195631714333?s=20
 https://x.com/hasantoxr/status/2031266915268919776?s=20
 https://x.com/alifcoder/status/2031382426648555886?s=20
 https://x.com/JulianGoldieSEO/status/2031278885816451075?s=20
@@ -103,7 +105,7 @@ https://x.com/Piyushkumar420/status/2031590576135745614?s=20
 https://x.com/Ubermenscchh/status/2031423945690456227?s=20
 https://x.com/socialwithaayan/status/2031343745329992096?s=20
 https://x.com/RodmanAi/status/2031622315599904898?s=20
-
+https://x.com/JulianGoldieSEO/status/2031379145847148702?s=20
 https://x.com/abxxai/status/2031408810653520087?s=20
 https://x.com/Rixhabh__/status/2031618756242501774?s=20
 https://x.com/aiwithjainam/status/2031282913422225567?s=20
@@ -115,7 +117,7 @@ https://x.com/rohanpaul_ai/status/2031534443958251745?s=20
 https://x.com/sukh_saroy/status/2031287484055990497?s=20
 https://x.com/Parul_Gautam7/status/2031377064360890718?s=20
 https://x.com/oliviscusAI/status/2031415996553244898?s=20
-
+https://x.com/KanikaBK/status/2031286499212407028?s=20
 https://x.com/Suryanshti777/status/2031612863442465190?s=20
 https://x.com/Suryanshti777/status/2031612863442465190?s=20
 https://x.com/JulianGoldieSEO/status/2031626176095985756?s=20
