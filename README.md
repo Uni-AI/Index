@@ -96,6 +96,9 @@ https://x.com/ihtesham2005/status/2031018944455463135
 https://x.com/simplifyinAI/status/2031050007957184934?s=20
 
 # Index
+https://x.com/alifcoder/status/2031273795118666082?s=20
+https://x.com/JulianGoldieSEO/status/2031580563841409204?s=20
+https://x.com/milesdeutscher/status/2031496083864731704?s=20
 https://x.com/Vinay_bharambe/status/2031629140638482526?s=20
 https://x.com/HeyAbhishek/status/2031378195631714333?s=20
 https://x.com/hasantoxr/status/2031266915268919776?s=20
