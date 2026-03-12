@@ -1,3 +1,5 @@
+https://x.com/hasantoxr/status/2032031966951055451
+https://x.com/JulianGoldieSEO/status/2031972489786700148
 https://x.com/JafarNajafov/status/2032033435393671493
 https://x.com/abxxai/status/2032098361483124889
 https://x.com/JafarNajafov/status/2032033435393671493
