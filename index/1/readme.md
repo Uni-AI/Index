@@ -1,3 +1,5 @@
+https://x.com/rohanpaul_ai/status/2032206292614631619?s=20
+https://x.com/ns123abc/status/2032197916324974615
 https://x.com/hasantoxr/status/2032132315527499869?s=20
 https://x.com/JulianGoldieSEO/status/2032039593927753905?s=20
 https://x.com/socialwithaayan/status/2031999445974540792?s=20
