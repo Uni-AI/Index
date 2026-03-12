@@ -1,3 +1,6 @@
+https://x.com/KanikaBK/status/2032014544227483674?s=20
+https://x.com/JulianGoldieSEO/status/2031999133628940362?s=20
+
 https://x.com/hasantoxr/status/2032031966951055451?s=20
 https://x.com/hasantoxr/status/2032031966951055451
 https://x.com/JulianGoldieSEO/status/2031972489786700148
