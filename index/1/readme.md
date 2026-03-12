@@ -1,3 +1,6 @@
+https://x.com/smratitiwa86867/status/2032113820705972450?s=20
+https://x.com/JulianGoldieSEO/status/2032216587701461343?s=20
+https://x.com/DivyanshT91162/status/2032125190428377509?s=20
 https://x.com/rohanpaul_ai/status/2032206292614631619?s=20
 https://x.com/ns123abc/status/2032197916324974615
 https://x.com/hasantoxr/status/2032132315527499869?s=20
