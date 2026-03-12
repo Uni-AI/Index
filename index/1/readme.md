@@ -1,3 +1,13 @@
+https://x.com/DataChaz/status/2032030115849519394?s=20
+https://x.com/Aiden_Tech_Ai/status/2031839252145951106?s=20
+https://x.com/puja_roy30dr/status/2032056798568726949?s=20
+https://x.com/Suryanshti777/status/2031841896549794022?s=20
+https://x.com/thisdudelikesAI/status/2032020679827341603?s=20
+https://x.com/DivyanshT91162/status/2032099887853019158?s=20
+https://x.com/tech_crafters/status/2032126440330969325?s=20
+https://x.com/sukh_saroy/status/2032093263084339491?s=20
+https://x.com/aiwithjainam/status/2032049307491426409?s=20
+
 https://x.com/KanikaBK/status/2032014544227483674?s=20
 https://x.com/JulianGoldieSEO/status/2031999133628940362?s=20
 https://x.com/Whizz_ai/status/2031985880295153809?s=20
