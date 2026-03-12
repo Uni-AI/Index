@@ -50,7 +50,8 @@ https://x.com/RoundtableSpace/status/2031811142868218082?s=20
 https://x.com/thetripathi58/status/2031757275728367699?s=20
 https://x.com/piyascode9/status/2031720459444871306?s=20
 https://x.com/piyascode9/status/2031720459444871306?s=20
-
+https://x.com/thetripathi58/status/2032072322086289433?s=20
+https://x.com/ihtesham2005/status/2032012243915980900?s=20
 https://x.com/JulianGoldieSEO/status/2031793024481837546?s=20
 https://x.com/alifcoder/status/2031740200918127082?s=20
 https://x.com/AndrewBolis/status/2031690384464924808
