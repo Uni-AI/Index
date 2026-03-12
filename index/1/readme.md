@@ -1,6 +1,14 @@
 https://x.com/KanikaBK/status/2032014544227483674?s=20
 https://x.com/JulianGoldieSEO/status/2031999133628940362?s=20
-
+https://x.com/Whizz_ai/status/2031985880295153809?s=20
+https://x.com/godofprompt/status/2031785580678516850?s=20
+https://x.com/TheAIColony/status/2032112596048851287?s=20
+https://x.com/RoundtableSpace/status/2032143331493597464?s=20
+https://x.com/hasantoxr/status/2032132315527499869?s=20
+https://x.com/JulianGoldieSEO/status/2032039593927753905?s=20
+https://x.com/socialwithaayan/status/2031999445974540792?s=20
+https://x.com/TheWhizzAI/status/2032034398250680808?s=20
+https://x.com/raunak_yadush/status/2031946506203443652?s=20
 https://x.com/hasantoxr/status/2032031966951055451?s=20
 https://x.com/hasantoxr/status/2032031966951055451
 https://x.com/JulianGoldieSEO/status/2031972489786700148
