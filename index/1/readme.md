@@ -1,3 +1,9 @@
+
+https://x.com/RoundtableSpace/status/2032460421144203728
+https://x.com/RodmanAi/status/2032647196852859051
+https://x.com/JulianGoldieSEO/status/2032375069901808027
+https://x.com/hasantoxr/status/2032401294787526805
+https://x.com/JulianGoldieSEO/status/2032724637893935350?s=20
 https://x.com/hasantoxr/status/2032208094554701862?s=20
 https://x.com/DataChaz/status/2032018471135912443?s=20
 https://x.com/RoundtableSpace/status/2032226378427302201?s=20
